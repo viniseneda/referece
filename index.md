@@ -40,3 +40,7 @@
 [http://www.hardcoregaming101.net/](http://www.hardcoregaming101.net/)
 
 ## SCIENCE & STUFF
+
+## UTILITIES 
+
+[http://www.easybib.com/](http://www.easybib.com/)
