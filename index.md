@@ -19,7 +19,7 @@
 
 [http://linkeditions.tumblr.com/](http://linkeditions.tumblr.com/)
 
-[https://digitalcollections.nypl.org/](https://digitalcollections.nypl.org/)
+[http://publicdomain.nypl.org/pd-visualization/](http://publicdomain.nypl.org/pd-visualization/)
 
 ## TUMBLR & BLOGS
 
