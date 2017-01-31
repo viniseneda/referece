@@ -33,4 +33,6 @@
 
 [Daniel Schiffman](http://shiffman.net/)
 
+[http://www.hardcoregaming101.net/](http://www.hardcoregaming101.net/)
+
 ## SCIENCE & STUFF
