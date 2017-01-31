@@ -19,6 +19,8 @@
 
 [http://linkeditions.tumblr.com/](http://linkeditions.tumblr.com/)
 
+[https://digitalcollections.nypl.org/](https://digitalcollections.nypl.org/)
+
 ## TUMBLR & BLOGS
 
 ## TWITTER PERSONALITIES
