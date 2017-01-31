@@ -23,6 +23,8 @@
 
 ## TUMBLR & BLOGS
 
+[http://orweblog.oclc.org/](http://orweblog.oclc.org/)
+
 ## TWITTER PERSONALITIES
 
 ## JOGOS E SOFTWARE
